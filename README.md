@@ -12,3 +12,14 @@
 
 # 𝙈𝙔 𝙝𝙪𝙨𝙗𝙖𝙣𝙙 𝙖𝙣𝙙 𝙨𝙤𝙣 ꨄ
 <img width="735" height="446" alt="1000063378" src="https://github.com/user-attachments/assets/40c253d7-9763-4eac-8930-1de001054a37" />
+
+
+
+
+
+# 𝙄'𝙢 𝙡𝙖𝙯𝙮 𝙩𝙤 𝙙𝙧𝙖𝙬 𝙤𝙠? 𝙤𝙠...
+(I swear I will if I have motivation☹️)
+
+<img width="451" height="554" alt="1000063407" src="https://github.com/user-attachments/assets/2915928e-a6b4-4f8f-a546-d065675b5b47" />
+
+🎮: Minimuse
